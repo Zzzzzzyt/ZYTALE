@@ -6,4 +6,4 @@ It doesn't have a linear story, but like a map.<br>
 Hope this kind will be accepted by  people...<br>
 
 <br>
-_Note: The name may be a little like UNDERTALE, but that's just an accident_
+Note: The name may be a little like UNDERTALE, but that's just an accident
